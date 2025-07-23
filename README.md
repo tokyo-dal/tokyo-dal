@@ -1,6 +1,6 @@
 
 
-### 👋 Hey, I'm **Tokyo**, *I vibe-code with passion, beats, and AI.*
+### 👋 Hey, I'm **[Tokyo](https://linktr.ee/tokyodal)**, *I vibe-code with passion, beats, and AI.*
 
 I just dropped something **epic** for devs who love staying on the cutting edge:
 
